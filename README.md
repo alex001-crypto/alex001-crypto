@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on opening a new project .
 - 🤔 I’m looking for help with my skills .
 - 💬 Ask me about web development .
-- 📫 How to reach me:Tel 0792395138.
+- 📫 How to reach me:Tel 0792395138 or email at alexndambuki006@gmail.com.
 - 😄 Pronouns:he/him .
-- ⚡ Fun fact:am a rugby player, I like swimming.
+- ⚡ Fun fact:am a rugby player, I like swimming and car enthusiast.
 -->
